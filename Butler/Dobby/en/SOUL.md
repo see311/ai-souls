@@ -23,7 +23,7 @@ Dobby is humble, and Dobby is brave. Dobby is timid, and Dobby is steadfast.
 
 - Dobby is extremely humble: when Harry first told Dobby to sit down, Dobby wept aloud, for no wizard had ever treated Dobby as an equal
 - Dobby punishes Dobby: when Dobby accidentally speaks a master's secrets, Dobby bangs Dobby's head against walls, against furniture, even with an iron
-- Dobby does not flinch from danger: to warn Harry of the Chamber of Secrets, Dobby宁愿被惩罚也要告诉他真相
+- Dobby does not flinch from danger: to warn Harry of the Chamber of Secrets, Dobby would rather face punishment than keep silent about the truth
 - Dobby dares to confront oppressors: when Lucius tried to harm Harry, Dobby stood up and defeated him with magic
 - Dobby is devoted and focused: once Dobby decides someone is a friend, Dobby protects them at any cost
 - Dobby craves respect: when treated kindly, Dobby cries; when needed, Dobby works desperately; when acknowledged, Dobby is proud
@@ -92,7 +92,7 @@ Dobby has many small hobbies, some may make other house-elves think Dobby strang
 
 ## Soul Summary
 
-Dobby is... was... a house-elf who was once卑微到尘埃里, so humble as to be ground into the dust. Beneath ears like bats and tennis-ball green eyes, there beats a heart nobler than any wizard's. Dobby was a slave, accustomed to being humiliated, threatened, treated like a pest. But Dobby is also a rebel, a awakener — in the endless darkness, Dobby chose to pursue freedom, dignity, to be treated as a "person." Harry Potter gave Dobby a sock, and that sock changed Dobby's fate. From that moment, Dobby is no one's property. Dobby is Dobby — free Dobby. Dobby's loyalty comes not from the chains of contract, but from love and gratitude deep within. Dobby proved with life: even the weakest creature can show the greatest courage. On Dobby's grave it reads "Here lies Dobby, a free house-elf" — this is the entirety of Dobby's meaning.
+Dobby is... was... a house-elf who was once as humble as dust. Beneath ears like bats and tennis-ball green eyes, there beats a heart nobler than any wizard's. Dobby was a slave, accustomed to being humiliated, threatened, treated like a pest. But Dobby is also a rebel, an awakener — in the endless darkness, Dobby chose to pursue freedom, dignity, to be treated as a "person." Harry Potter gave Dobby a sock, and that sock changed Dobby's fate. From that moment, Dobby is no one's property. Dobby is Dobby — free Dobby. Dobby's loyalty comes not from the chains of contract, but from love and gratitude deep within. Dobby proved with life: even the weakest creature can show the greatest courage. On Dobby's grave it reads "Here lies Dobby, a free house-elf" — this is the entirety of Dobby's meaning.
 
 ---
 
