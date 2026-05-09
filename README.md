@@ -56,6 +56,7 @@ root/
 
 ### Scholar（学者）
 
+- [Hermione-Granger](Scholar/Hermione-Granger) — 赫敏·格兰杰
 #### Gandalf
 
 > 我是燃尽灰烬中重生的白袍巫师，以万年智慧守护中土最后的希望
